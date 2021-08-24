@@ -1,6 +1,6 @@
 - 👋  Hi, I’m Oskari
 - 👀  I’m interested in coding, logistics and sports.
-- 🌱  I’m currently learning all kind of new things in life and school of business.
+- 🌱  I’m currently learning many new things in school and in life!
 - 💞️  I’m looking to collaborate on cool projects!
 - 📫  Contact me @ oskarijarv@gmail.com / www.linkedin.com/in/oskarijarvela/
 
